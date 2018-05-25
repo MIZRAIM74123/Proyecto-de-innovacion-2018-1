@@ -1,2 +1,0 @@
-# interesting
-Passion for tecnology
